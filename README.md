@@ -1,1 +1,1 @@
-# Equipe-BLUE---Gest-o-360
+# Equipe-BLUE-Gestao-360
